@@ -1,4 +1,4 @@
 # dinukawebs
 
 
-https://dinukahimsara1.github.io/dinukawebs.com/
+https://dinukahimsara1.github.io/
